@@ -1,0 +1,1 @@
+# Slots-Vegas_3.0_res
